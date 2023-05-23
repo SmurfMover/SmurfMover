@@ -1,0 +1,3 @@
+I am an artist willing to work on alot of projects
+Thats it...
+Unless you play Ds 1-3
